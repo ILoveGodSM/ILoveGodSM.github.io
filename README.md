@@ -1,2 +1,0 @@
-# ilovegodsm.github.io
-dddddd
